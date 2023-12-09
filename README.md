@@ -1,1 +1,1 @@
-Week 1 critical thinking assignment for CSC320
+Week 1 Critical Thinking assignment for CSC320
